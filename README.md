@@ -1,4 +1,4 @@
-## backcountry enthusiast 🌲
+## backcountry hunter 🌲
 
 <!--
 **ElijahDale/ElijahDale** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
